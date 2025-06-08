@@ -32,4 +32,4 @@ Podemos actualizar nuestra Política de Privacidad de vez en cuando. Le notifica
 ## 5. Contacto
 
 Si tiene alguna pregunta sobre esta Política de Privacidad, puede contactarnos en:
-[TU CORREO ELECTRÓNICO AQUÍ]
+wernermilton.m@gmail.com
